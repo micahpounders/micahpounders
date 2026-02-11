@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hi there, I'm Micah!👋
 
 Experienced IT Manager with a demonstrated history of working in the religious/non-profit sector. More than 7 years of Network Administration experience including designing and maintaining new networks across a large campus. More than 5 years of CyberSecurity experience hardening security components on site and training best security practices for all employees. Skilled in Microsoft Word, Sales, Sales Management, Team Building, and Public Speaking. Strong community and social services professional with a Master of Business Administration (M.B.A.) focused in Business Administration and Management, General from Liberty University.
